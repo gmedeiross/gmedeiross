@@ -1,8 +1,8 @@
 # Guilherme Medeiros Profile 
-Meu nome é Guilherme Medeiros da Silva.
+Meu nome é Guilherme Medeiros da Silva
 
-Tenho 16 anos.
+Tenho 16 anos
 
-Nasci Resende-RJ, onde moro até hoje.
+Nasci Resende-RJ, onde moro até hoje
 
 
