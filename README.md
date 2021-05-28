@@ -3,6 +3,6 @@
 
 -Tenho 16 anos
 
--Nasci em Resende-RJ, onde moro até hoje
+-Nasci em Resende (RJ), onde moro até hoje
 
 
